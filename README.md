@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Anshul0110
+- 👋 Hi, I’m @Anshul440
 - 👀 I’m interested in Data Analytics
 - 🌱 I’m currently learning more and more everyday in Data Analysis
 - 📫 How to reach me anshulpardhi508@gmail.com
