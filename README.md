@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Anshul440
 - 👀 I’m interested in Data Analytics
-- 🌱 I’m currently learning more and more everyday in Data Analysis
+- 🌱 I’m currently learning new social media marketing
 - 📫 How to reach me anshulpardhi508@gmail.com
 
 <!---
